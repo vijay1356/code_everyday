@@ -7,4 +7,4 @@ today i completed the 1st and the 2nd video
 
 *-2. https://youtu.be/t6zLJOCVqD0?si=wYsrIzGEbugZeuTj
 
-it contains only theory part
+it consists only theory part
